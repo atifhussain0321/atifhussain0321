@@ -6,7 +6,7 @@
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with Python
 - 💬 Ask me about ...
-- 📫 How to reach me: contact.atifhussain@gmail.com
+- 📫 How to reach me: atifhussain.contactme@gmail.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: Next Founder of Great Company like Apple or Google.
+- ⚡ Fun fact: Next Founder of a Great Company like Apple or Google.
 
