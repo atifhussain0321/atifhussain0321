@@ -10,3 +10,6 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: Next Founder of a Great Company like Apple or Google.
 
+
+
+https://grok.com/share/c2hhcmQtMw_85bd2d45-5414-4b1c-8bcd-f9836878b60f
